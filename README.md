@@ -1,1 +1,0 @@
-# goodoid.github.io
